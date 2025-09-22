@@ -38,5 +38,5 @@ We want to work on managing our time better so we can give updates more consiste
 We will aim to meet and collaborate at times when both of us are available, likely in the evenings after 8 PM. We will work on each wave at night and discuss about the progress and changes during coworking time in the afternoon.
 
 ## Signatures
-______Geethalekshmi VS________ _______________
-Date: ____09/22/2025_____
+Geethalekshmi VS , Xin Li
+Date: 09/22/2025
